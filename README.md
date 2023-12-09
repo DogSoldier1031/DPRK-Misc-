@@ -60,6 +60,8 @@ http://www.korean-books.com.kp/
 
 http://www.lalkar.org/article/2654/the-democratic-structure-of-the-dprk
 
+https://kfausa.org
+
 https://www.kfausa.org/wp-content/uploads/2020/04/Socialist-Korea-Ellen-Brun-and-Jacques-Hersch.pdf
 
 https://en.m.wikipedia.org/wiki/Socialist_Women%27s_Union_of_Korea
