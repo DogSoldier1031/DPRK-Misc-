@@ -2,6 +2,10 @@ Japanese Imperialism, Colonialism & Genocide againt the Korean, Chinese and othe
 
 https://en.m.wikipedia.org/wiki/Japanese_war_crimes#:~:text=Various%20related%20crimes%20include%20sexual,which%20includes%20diaries%20and%20war
 
+https://en.m.wikipedia.org/wiki/Korea_under_Japanese_rule
+
+https://foreignpolicy.com/2019/05/29/tokyo-keeps-defending-world-war-ii-atrocities/#:~:text=Over%20a%20million%20Koreans%20would,work%20at%20a%20steel%20mill
+
 Korean War & Split
 
 https://www.wilsoncenter.org/article/new-evidence-north-korean-war-losses
