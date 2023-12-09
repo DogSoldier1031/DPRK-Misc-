@@ -28,4 +28,7 @@ Misc Video & Sources
 
 https://youtube.com/playlist?list=PLjSOqYsgV4mooNMGurkqsyWRFs8Lh-Hww&si=WiBqQsG37tTi8yUF
 
+https://youtu.be/cUbgXTgtNB8?si=SkgjfWButaXUYUid
+
+
 
