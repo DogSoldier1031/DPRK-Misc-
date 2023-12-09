@@ -8,6 +8,10 @@ https://foreignpolicy.com/2019/05/29/tokyo-keeps-defending-world-war-ii-atrociti
 
 https://gjia.georgetown.edu/2021/10/25/un-remembering-the-massacre-how-japans-history-wars-are-challenging-research-integrity-domestically-and-abroad/
 
+"Information on Korean deaths under Japanese occupation is difficult to uncover (Korea was not invited to participate in the War Crimes Trial). We do know that 5,400,000 Koreans were conscripted for labor beginning in 1939 (line 119), but how many died can only be roughly estimated. Apparently Koreans were better treated than were laborers from other countries, but still their work hours, food and medical care were such that large numbers died (even Japanese coolies forced to work in other countries were so maltreated that many died). This is clear from the 60,000 Korean laborers that died in Japan out of the near 670,000 that were brought there in the years 1939 to 1945 (line 119a). To estimate what the total Korean death toll might be, I give the forced labor death rates for Koreans and Chinese in Japan and forced laborers from or in Indonesia (lines 119b-121). With these as the upper bounds, my reading of Korean history for this period suggests a possible range in the Korean death rate of 5 to 15 percent, with a mid-estimate of 7 percent. These should be conservative rates, given that near 9 percent died in Japan where work conditions can be assumed better than in Korea or Manchuria; and that the rates are much less than half those for China and Indonesia. Even at these low rates, however, the forced labor toll for Korea comes to 270,000 to 810,000 dead in seven years."
+
+https://www.hawaii.edu/powerkills/SOD.CHAP3.HTM
+
 Korean War & Split
 
 https://www.wilsoncenter.org/article/new-evidence-north-korean-war-losses
