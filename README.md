@@ -52,5 +52,9 @@ https://youtu.be/Bk8U3YPAZzo?si=2lM7JAIR17eWEwUb
 
 https://youtu.be/n8nCVSfL3V0?si=7wfljQEopgxo4Xwu
 
+"Since 2006, successive US administrations have continuously strengthened sanctions on the Democratic People's Republic of Korea (DPRK). Since 1988, the United States has for many years included the DPRK in the list of "state sponsors of terrorism." In 2016, then President Barack Obama signed the "North Korea Sanctions and Policy Enhancement Act" to supplement the sanctions already imposed by past administrations. In 2017, the US imposed further sanctions on the DPRK through the "Countering America's Adversaries Through Sanctions Act" and demanded that SWIFT cut off the DPRK banks from their global banking network. The US sanctions on the DPRK include restrictions on trade imports and exports, prohibition on the DPRK citizens from working overseas, freezing of assets in the US, and prohibition on economic ties with the DPRK. In November of the same year, three aircraft carriers of the US Navy, including USS Reagan, USS Roosevelt and USS Nimitz, appeared in the East China Sea at the same time and jointly held high-intensity military exercises with the South Korean Navy, which attracted great attention from the outside world."
+
+https://www.fmprc.gov.cn/mfa_eng/wjbxw/202305/t20230518_11079589.html
+
 
 
