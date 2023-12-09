@@ -54,7 +54,12 @@ https://youtu.be/n8nCVSfL3V0?si=7wfljQEopgxo4Xwu
 
 https://www.fmprc.gov.cn/mfa_eng/wjbxw/202305/t20230518_11079589.html
 
+More Sources on governance & daily life
+
+http://www.korean-books.com.kp/
+
 http://www.lalkar.org/article/2654/the-democratic-structure-of-the-dprk
 
 https://www.kfausa.org/wp-content/uploads/2020/04/Socialist-Korea-Ellen-Brun-and-Jacques-Hersch.pdf
 
+https://en.m.wikipedia.org/wiki/Socialist_Women%27s_Union_of_Korea
