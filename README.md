@@ -26,11 +26,17 @@ https://www.irishtimes.com/news/world/asia-pacific/unknown-to-most-americans-the
 
 Misc Video & Sources
 
+
+
 https://youtube.com/playlist?list=PLjSOqYsgV4mooNMGurkqsyWRFs8Lh-Hww&si=WiBqQsG37tTi8yUF
 
 https://youtu.be/cUbgXTgtNB8?si=SkgjfWButaXUYUid
 
 https://youtu.be/6L-esvI2rxc?si=4iTru9NJUdMMVeaC
+
+https://youtu.be/Bk8U3YPAZzo?si=2lM7JAIR17eWEwUb
+
+https://youtu.be/n8nCVSfL3V0?si=7wfljQEopgxo4Xwu
 
 
 
