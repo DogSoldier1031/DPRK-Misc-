@@ -1,8 +1,10 @@
 Japanese Imperialism, Colonialism & Genocide againt the Korean people
 
-Korean War & Splithttps://en.m.wikipedia.org/wiki/Unit_731
-
 https://en.m.wikipedia.org/wiki/Japanese_war_crimes#:~:text=Various%20related%20crimes%20include%20sexual,which%20includes%20diaries%20and%20war
+
+https://en.m.wikipedia.org/wiki/Unit_731
+
+Korean War & Split
 
 https://www.wilsoncenter.org/article/new-evidence-north-korean-war-losses
 
