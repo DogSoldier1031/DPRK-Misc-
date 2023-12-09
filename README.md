@@ -26,7 +26,7 @@ https://www.irishtimes.com/news/world/asia-pacific/unknown-to-most-americans-the
 
 Misc Video & Sources
 
-
+http://www.korean-books.com.kp/en/
 
 https://youtube.com/playlist?list=PLjSOqYsgV4mooNMGurkqsyWRFs8Lh-Hww&si=WiBqQsG37tTi8yUF
 
