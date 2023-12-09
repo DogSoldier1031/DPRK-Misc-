@@ -6,6 +6,8 @@ https://en.m.wikipedia.org/wiki/Korea_under_Japanese_rule
 
 https://foreignpolicy.com/2019/05/29/tokyo-keeps-defending-world-war-ii-atrocities/#:~:text=Over%20a%20million%20Koreans%20would,work%20at%20a%20steel%20mill
 
+https://gjia.georgetown.edu/2021/10/25/un-remembering-the-massacre-how-japans-history-wars-are-challenging-research-integrity-domestically-and-abroad/
+
 Korean War & Split
 
 https://www.wilsoncenter.org/article/new-evidence-north-korean-war-losses
