@@ -58,6 +58,8 @@ More Sources on governance & daily life
 
 https://www.ncnk.org/resources/publications/dprk-constitution-2019.pdf/file_view
 
+https://www.marxists.org/archive/kim-jong-il/works/On-The-Juche-Idea.pdf
+
 http://www.korean-books.com.kp/
 
 http://www.lalkar.org/article/2654/the-democratic-structure-of-the-dprk
