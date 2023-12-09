@@ -30,6 +30,8 @@ http://www.korean-books.com.kp/en/
 
 https://youtube.com/playlist?list=PLjSOqYsgV4mooNMGurkqsyWRFs8Lh-Hww&si=WiBqQsG37tTi8yUF
 
+https://m.youtube.com/playlist?list=PL4D1A9E71A707338B
+
 https://youtu.be/cUbgXTgtNB8?si=SkgjfWButaXUYUid
 
 https://youtu.be/6L-esvI2rxc?si=4iTru9NJUdMMVeaC
