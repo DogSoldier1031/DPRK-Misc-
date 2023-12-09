@@ -36,9 +36,7 @@ https://en.m.wikipedia.org/wiki/Truth_and_Reconciliation_Commission_(South_Korea
 
 https://www.irishtimes.com/news/world/asia-pacific/unknown-to-most-americans-the-us-totally-destroyed-north-korea-once-before-1.3227633
 
-Misc Video & Sources
-
-http://www.korean-books.com.kp/en/
+Misc Video & Articles
 
 https://youtube.com/playlist?list=PLjSOqYsgV4mooNMGurkqsyWRFs8Lh-Hww&si=WiBqQsG37tTi8yUF
 
@@ -58,5 +56,5 @@ https://www.fmprc.gov.cn/mfa_eng/wjbxw/202305/t20230518_11079589.html
 
 http://www.lalkar.org/article/2654/the-democratic-structure-of-the-dprk
 
-
+https://www.kfausa.org/wp-content/uploads/2020/04/Socialist-Korea-Ellen-Brun-and-Jacques-Hersch.pdf
 
