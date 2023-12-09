@@ -24,4 +24,8 @@ https://en.m.wikipedia.org/wiki/Truth_and_Reconciliation_Commission_(South_Korea
 
 https://www.irishtimes.com/news/world/asia-pacific/unknown-to-most-americans-the-us-totally-destroyed-north-korea-once-before-1.3227633
 
+Misc Video & Sources
+
+https://youtube.com/playlist?list=PLjSOqYsgV4mooNMGurkqsyWRFs8Lh-Hww&si=WiBqQsG37tTi8yUF
+
 
