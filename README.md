@@ -56,6 +56,8 @@ https://www.fmprc.gov.cn/mfa_eng/wjbxw/202305/t20230518_11079589.html
 
 More Sources on governance & daily life
 
+https://www.ncnk.org/resources/publications/dprk-constitution-2019.pdf/file_view
+
 http://www.korean-books.com.kp/
 
 http://www.lalkar.org/article/2654/the-democratic-structure-of-the-dprk
