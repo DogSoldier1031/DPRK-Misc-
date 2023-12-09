@@ -64,4 +64,8 @@ https://kfausa.org
 
 https://www.kfausa.org/wp-content/uploads/2020/04/Socialist-Korea-Ellen-Brun-and-Jacques-Hersch.pdf
 
+https://en.m.wikipedia.org/wiki/Supreme_People%27s_Assembly
+
+https://en.m.wikipedia.org/wiki/General_Federation_of_Trade_Unions_of_Korea
+
 https://en.m.wikipedia.org/wiki/Socialist_Women%27s_Union_of_Korea
