@@ -56,5 +56,7 @@ https://youtu.be/n8nCVSfL3V0?si=7wfljQEopgxo4Xwu
 
 https://www.fmprc.gov.cn/mfa_eng/wjbxw/202305/t20230518_11079589.html
 
+http://www.lalkar.org/article/2654/the-democratic-structure-of-the-dprk
+
 
 
