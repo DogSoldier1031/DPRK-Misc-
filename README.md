@@ -83,3 +83,9 @@ https://en.m.wikipedia.org/wiki/Supreme_People%27s_Assembly
 https://en.m.wikipedia.org/wiki/General_Federation_of_Trade_Unions_of_Korea
 
 https://en.m.wikipedia.org/wiki/Socialist_Women%27s_Union_of_Korea
+
+
+MISC VIDS & PICS
+
+https://m.youtube.com/shorts/WImla0GGIsI?si=28ia-yeiVUd6DVgJ
+
