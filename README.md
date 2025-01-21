@@ -14,6 +14,8 @@ https://www.hawaii.edu/powerkills/SOD.CHAP3.HTM
 
 Korean War & Split
 
+https://www.instagram.com/reel/DDIaVAhSxKw/?igsh=MTB0NmJ2bXRpdGkybA==
+
 https://www.wilsoncenter.org/article/new-evidence-north-korean-war-losses
 
 https://en.m.wikipedia.org/wiki/Bombing_of_North_Korea
